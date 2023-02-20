@@ -7,3 +7,4 @@ Mmmmm j'adore les corps putrifies! -Mia
 comme les plantes grasses
 c'est moi
 >>>>>>> main
+Les palmiers sont beaux 
